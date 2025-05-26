@@ -1,4 +1,5 @@
-❌mR@PrÊm#KūMå®™SøÑy / Mr+sHaÑâD*KùMåR∆vĒrM🅰️
+mr shanad kumar verma
+
 
 Vill, Narahawa
 

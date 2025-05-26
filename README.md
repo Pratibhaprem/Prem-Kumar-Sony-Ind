@@ -1,9 +1,3 @@
-mr shanad kumar verma
-
-
-Vill, Narahawa
-
-Dist, Kushinagar
-
-Std, Uttar Pradesh
-
+MR,SHANAD KUMAR VERMA
+ALIASH TO MR,PREM KUMAR VERMA
+DIST
